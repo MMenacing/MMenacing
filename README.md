@@ -1,1 +1,2 @@
-# Hi im Mia / Creed !
+# Hi im Mia / Creed ! ₊˚⊹☆
+she/her <3

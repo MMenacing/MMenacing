@@ -35,7 +35,11 @@ I am not fullt comfortable talking to people under my age.
 **PLEASE DO NOT RANDOMLY ROLEPLAY WITH ME. I DO NOT LIKE ROLEPLAYING WHAT SO EVER. IT MAKES ME UNCOMFORTABLE . 
 ITS OKAY IF ITS JOKING AROUND ROLEPLAY!! NOTHING MORE**
 
-https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider
+![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
+
+
+![Jotaro Kujo](https://raw.githubusercontent.com/MMenacing/jojo2/main/a18a763275c9863cf33713216124e3b5.gif)
+
 
 **MY CURRENT HYPERFIXATIONS**
 

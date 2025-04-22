@@ -21,4 +21,4 @@ please INT if youre 17+! I dont bite!! ♡
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
-##I HAVE A BOYFRIEND, PLEASE RESPECT MY RELATIONSHIP. IF YOU DONT I WILL BLOCK YOU.##
+**I HAVE A BOYFRIEND, PLEASE RESPECT MY RELATIONSHIP. IF YOU DONT I WILL BLOCK YOU.**

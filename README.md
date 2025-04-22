@@ -1,5 +1,5 @@
-# Hi im Mia / Creed ! ₊˚⊹☆
-she/her <3
+# Hi im JJ / Creed ! ₊˚⊹☆
+im a dude
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 

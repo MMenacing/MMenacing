@@ -16,3 +16,9 @@ I do not use tone indicators!! I also make pretty mean jokes but dont take them 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
 
+PLEASE DNI IF YOURE UNDER 16.  I am not fullt comfortable talking to people under my age.
+please INT if youre 17+! I dont bite!! ♡ 
+
+![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
+
+##I HAVE A BOYFRIEND, PLEASE RESPECT MY RELATIONSHIP. IF YOU DONT I WILL BLOCK YOU.##

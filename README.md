@@ -9,7 +9,7 @@ she/her <3
 
 ─ ⊹ ⊱ ☆ ⊰ ⊹ ─ 
 
-I do not use tone indicators!! I also make pretty mean jokes but dont take them personally ! 
+**I do not use tone indicators!! I also make pretty mean jokes but dont take them personally !**
 
 ─ ⊹ ⊱ ☆ ⊰ ⊹ ─ 
 
@@ -26,7 +26,7 @@ please INT if youre 17+! I dont bite!! ♡
 **I HAVE A BOYFRIEND, PLEASE RESPECT MY RELATIONSHIP. IF YOU DONT I WILL BLOCK YOU.**
 • I do allow  platonic flirt but nothing more.
 
-https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider
+![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
 **I DO NOR SHIP CHARACTERS. UNLESS CANON.**
 
@@ -39,3 +39,6 @@ https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider
 
 JoJos Bizzare Adventure and Sonic the hedgehog.
 i dont like being in too many groups or else i become extremely overwhelmed.
+
+![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
+

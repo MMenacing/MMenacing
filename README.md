@@ -1,4 +1,4 @@
-# Hi im Jojo / Creed ! ₊˚⊹☆
+# Hi im Creed ! ₊˚⊹☆
 im a dude
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)

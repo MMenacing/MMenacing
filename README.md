@@ -19,11 +19,13 @@ she/her <3
 **PLEASE DNI IF YOURE UNDER 16.** 
 
 I am not fullt comfortable talking to people under my age.
-please INT if youre 17+! I dont bite!! ♡ 
+
+•please INT if youre 17+! I dont bite!! ♡ 
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
 **I HAVE A BOYFRIEND, PLEASE RESPECT MY RELATIONSHIP. IF YOU DONT I WILL BLOCK YOU.**
+
 • I do allow  platonic flirt but nothing more.
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
@@ -38,7 +40,8 @@ https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider
 **MY CURRENT HYPERFIXATIONS**
 
 JoJos Bizzare Adventure and Sonic the hedgehog.
-i dont like being in too many groups or else i become extremely overwhelmed.
+
+•I dont like being in too many groups or else i become extremely overwhelmed.
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 

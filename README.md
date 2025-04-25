@@ -1,5 +1,5 @@
 # Hi im Creed ! ₊˚⊹☆
-im a dude
+im a dude/ born a dude/ not trans... ??? (stop asking that lol)
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 

@@ -16,11 +16,11 @@ im a dude/ born a dude/ not trans... ??? (stop asking that lol)
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
 
-**PLEASE DNI IF YOURE UNDER 16.** 
+**PLEASE DNI IF YOURE UNDER 15.** 
 
 I am not fullt comfortable talking to people under my age.
 
-•please INT if youre 17+! I dont bite!! 
+•please INT if youre 16+! I dont bite!! 
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 

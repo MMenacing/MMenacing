@@ -1,6 +1,8 @@
 # Hi im Creed ! ₊˚⊹☆
 im a dude/ born a dude/ not trans... ??? (stop asking that lol)
 
+18- Turning 19 AUG 18th.
+
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
 ![JoJo](https://raw.githubusercontent.com/MMenacing/MMenacing/main/jojo.gif)

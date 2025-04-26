@@ -1,5 +1,4 @@
 # Hi im Creed ! ₊˚⊹☆
-im a dude/ born a dude/ not trans... ??? (stop asking that lol)
 
 18- Turning 19 AUG 18th.
 

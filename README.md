@@ -4,6 +4,8 @@
 
 C+H OPEN. 
 
+DISCORD: corgiifullgalaxy
+
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 
 ![JoJo](https://raw.githubusercontent.com/MMenacing/MMenacing/main/jojo.gif)

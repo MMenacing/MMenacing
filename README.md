@@ -1,10 +1,10 @@
-# Hi im Kujo ! ₊˚⊹☆
+# Hi im Michi ! ₊˚⊹☆
 
-18- Turning 19 AUG 18th.
+19- turning 20 818 .
 
 C+H OPEN. 
 
-DISCORD: corgiifullgalaxy
+DISCORD:  zmshisu
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 

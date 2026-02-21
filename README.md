@@ -1,10 +1,10 @@
-# Hi im Michi ! ₊˚⊹☆
+# Hi im Nicole ! ₊˚⊹☆
 
 19- turning 20 818 .
 
 C+H OPEN. 
 
-DISCORD:  zmshisu
+DISCORD:  Brandyangel
 
 ![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
 

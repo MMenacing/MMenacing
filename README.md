@@ -1,6 +1,6 @@
 # Hi im Nicole ! ₊˚⊹☆
 
-19- turning 20 818 .
+19- turning 20 8.18 .
 
 C+H OPEN. 
 

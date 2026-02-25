@@ -1,4 +1,4 @@
-# Hi im Nicole ! ₊˚⊹☆
+# Hi im Nicole / Yunnie ! ₊˚⊹☆
 
 19- turning 20 8.18 .
 

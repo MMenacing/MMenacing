@@ -1,6 +1,6 @@
 # Hi im Nicole / Yunnie ! ₊˚⊹☆
 
-DISCORD:  Brandyangel
+DISCORD:  19prayers
 
 https://yunnie2006.straw.page/
 

@@ -2,8 +2,8 @@
 
 DISCORD:  Brandyangel
 
-![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
+https://yunnie2006.straw.page/
 
 ![JoJo](https://raw.githubusercontent.com/MMenacing/MMenacing/main/jojo.gif)
 
-![Divider](https://raw.githubusercontent.com/MMenacing/MMenacing/main/divider.gif)
+
